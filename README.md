@@ -3,5 +3,5 @@ Hai.. My name surya
 To my personal blog <br>
 I'm a web developer designer & freelancer. <br>
 See my personal blog. <br>
-If you like my work hire me.
+If you like my work Hire me.
 
